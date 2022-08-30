@@ -20,10 +20,6 @@ My [Twitter Account](https://twitter.com/EagleTribeEris).
 
 My [Gamejolt Account](https://gamejolt.com/@EagleTribeEris).
 
-My [Discord Server (WARNING: Suggestive Content Ahead)](https://discord.gg/k4uvKtmcc8).
-
-My [Website](https://erisdevelopment.glitch.me/).
-
 [LEGO CHIMA ERIS DISCORD SERVER](https://discord.gg/zxxVhA5vXp)
 
-My Discord Account: LLoC Eagle Fan Art#1681
+My [Website](https://erisdevelopment.glitch.me/).
